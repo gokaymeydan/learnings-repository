@@ -14,5 +14,5 @@ Should you spot any errors, possess supplementary insights, or aspire to contrib
 
 Questions or suggestions on your mind? Reach out to me by dropping a message on LinkedIn or sending a DM on Instagram.
 
-- 📷 [Instagram](https://www.instagram.com/in/gokaymeydann/)
+- 📷 [Instagram](https://www.instagram.com/gokaymeydann/)
 - ‍💼 [LinkedIn](https://www.linkedin.com/in/gokaymeydan/)
